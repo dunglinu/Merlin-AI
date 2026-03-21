@@ -1,6 +1,6 @@
-## Merlin AI Promo Code 2025 | Get 82% Off Discount
+## Merlin AI Promo Code 2026 | Get 82% Off Discount
 
-[![getmerlin promo code](https://i.imgur.com/eN4n9j7.png)](https://www.getmerlin.in/pricing?ref=mzqyn2i&coupon=AFF5&plan=yearly)
+[![getmerlin promo code](https://i.imgur.com/eN4n9j7.png)](https://www.getmerlin.in/pricing?ref=mzqyn2i)
 
 Hey there! 😊
 
@@ -8,33 +8,33 @@ Did you know you can snag an amazing deal with the Merlin AI promo code? Enjoy u
 
 What a steal! Don’t miss out!
 
-[![get merlin ai promo code](https://i.imgur.com/iKCJrUA.png)](https://www.getmerlin.in/pricing?ref=mzqyn2i&coupon=AFF5&plan=yearly)
+[![get merlin ai promo code](https://i.imgur.com/iKCJrUA.png)](https://www.getmerlin.in/pricing?ref=mzqyn2i)
 
-### Active Merlin AI Promo Code for 2025
+### Active Merlin AI Promo Code for 2026
 
 Here are all the Merlin AI coupon codes that are currently available. Our team verifies each code, so you can simply copy it and use it at checkout.
 
 | Coupon Name | Coupon Code | Discount Details | Applicable Products/Services | Expiry Date | How to Use the Code |
 | --- | --- | --- | --- | --- | --- |
-| 82% OFF Pro Unlimited Annual Plan | AFF5 | 82% off, $60/year ($5/month) | Pro Unlimited Annual Plan | Limited time | Enter at checkout on [Merlin AI’s website](https://www.getmerlin.in/pricing?ref=mzqyn2i&coupon=AFF5&plan=yearly) |
-| 35% Off Sitewide | JUSTFORYOU35 | 35% off sitewide or specific plans | All plans (exclusions may apply) | December 2025 | Enter at checkout |
-| 20% Off Subscriptions | MERLIN20 | 20% off subscriptions | All subscription plans (members-only) | November 2025 | Apply at checkout |
+| 82% OFF Pro Unlimited Annual Plan | AFF5 | 82% off, $60/year ($5/month) | Pro Unlimited Annual Plan | Limited time | Enter at checkout on [Merlin AI’s website](https://www.getmerlin.in/pricing?ref=mzqyn2i) |
+| 35% Off Sitewide | JUSTFORYOU35 | 35% off sitewide or specific plans | All plans (exclusions may apply) | December 2026 | Enter at checkout |
+| 20% Off Subscriptions | MERLIN20 | 20% off subscriptions | All subscription plans (members-only) | November 2026 | Apply at checkout |
 | 35% Off Purchases | JUST4U35 | 35% off purchases | All plans (exclusions may apply) | March 2026 | Enter at checkout |
-| 20% Off Subscriptions | TAKE20 | 20% off subscriptions | All subscription plans | December 2025 | Enter at checkout when selecting a subscription plan |
-| 35% Off Monthly Subscription | OU35 | 35% off | Monthly subscriptions | December 2025 | Enter after logging into your account |
-| 25% Off All Plans | GO25 | 25% off | All subscription plans | Dec. 2025 | Enter at checkout when selecting a subscription plan |
-| 5% Off First Order | UNI5 | 5% off | First-time subscriptions | 2025 | Put it at checkout |
-| Annual Plan Discount | IN20 | 35% off + Extra 20% off | Annual subscriptions | November 2025 | Enter during payment process for annual subscription |
-| 35% Off Licenses | COLORMANGO25 | 35% off | Unlimited and Teams licenses | December 2025 | Enter at checkout |
+| 20% Off Subscriptions | TAKE20 | 20% off subscriptions | All subscription plans | December 2026 | Enter at checkout when selecting a subscription plan |
+| 35% Off Monthly Subscription | OU35 | 35% off | Monthly subscriptions | December 2026 | Enter after logging into your account |
+| 25% Off All Plans | GO25 | 25% off | All subscription plans | Dec. 2026 | Enter at checkout when selecting a subscription plan |
+| 5% Off First Order | UNI5 | 5% off | First-time subscriptions | 2026 | Put it at checkout |
+| Annual Plan Discount | IN20 | 35% off + Extra 20% off | Annual subscriptions | November 2026 | Enter during payment process for annual subscription |
+| 35% Off Licenses | COLORMANGO25 | 35% off | Unlimited and Teams licenses | December 2026 | Enter at checkout |
 | 65% Off Subscriptions | SALESPECIAL | 65% off | Most subscription plans | Not specified | Enter during payment process |
-| 20% Off Plans | SAVEMORE20 | 20% off | Monthly or yearly plans | December 2025 | Enter during payment process |
-| Verified Discount Code | HY5 | Discount not specified | Likely subscriptions | December 2025 | Enter at checkout |
+| 20% Off Plans | SAVEMORE20 | 20% off | Monthly or yearly plans | December 2026 | Enter during payment process |
+| Verified Discount Code | HY5 | Discount not specified | Likely subscriptions | December 2026 | Enter at checkout |
 | New Discount Code | MSQQZIJ9 | Discount not specified | Likely subscriptions | Jan 2026 | Simply enter the code during checkout to instantly apply the discount |
 | Student/Non-Profit Discount | STUDENT35 | 35% off | Annual subscriptions for students/non-profits | January 2026 | Verify student status and apply at checkout |
 | Flat 35% OFF on Pro Unlimited Annual Plan | MERLIN35 | 35% off | Pro Unlimited Annual Plan | April 2026 | Use this code when signing up for your subscription on merlin ai website. |
 | Flat 20% OFF on Teams Plan | MERLIN20 | 20% off | Teams Plan | Ongoing | Enter code at checkout |
 | Exclusive 35% Coupon Code | MERLINAI35 | 35% off, up to 50% with other discounts | Unlimited and Teams licenses | Ongoing | Input code at checkout |
-| 74% Off on Pro (Unlimited) - Billed Yearly | Promotional link | 74% off, $59.98/year | Pro Unlimited Annual Plan | January 2026 | Use [promotional link](https://www.getmerlin.in/pricing?ref=mzqyn2i&coupon=AFF5&plan=yearly) |
+| 74% Off on Pro (Unlimited) - Billed Yearly | Promotional link | 74% off, $59.98/year | Pro Unlimited Annual Plan | January 2026 | Use [promotional link](https://www.getmerlin.in/pricing?ref=mzqyn2i) |
 
 #### Additional Offers:
 
@@ -55,7 +55,7 @@ Redeeming Merlin AI promo codes is a straightforward process:
 6.  Complete the payment process with the discounted amount
 7.  Verify the discount has been applied before finalizing payment
 
-[![get merlin ai promo code](https://i.imgur.com/iKCJrUA.png)](https://www.getmerlin.in/pricing?ref=mzqyn2i&coupon=AFF5&plan=yearly)
+[![get merlin ai promo code](https://i.imgur.com/iKCJrUA.png)](https://www.getmerlin.in/pricing?ref=mzqyn2i)
 
 
 ### About Merlin AI
@@ -92,11 +92,11 @@ Merlin AI offers flexible pricing plans, with significant savings through coupon
 
 **Pro Unlimited Plan:**
 
-*   $19/month (billed annually at $228 or [$60/year with coupon AFF](https://www.getmerlin.in/pricing?ref=mzqyn2i&coupon=AFF5&plan=yearly))
+*   $19/month (billed annually at $228 or [$60/year with coupon AFF](https://www.getmerlin.in/pricing?ref=mzqyn2i))
 *   Unlimited queries
 *   30x access to the latest AI models
 *   Large context window
-*   Quick summary with PDF, website and YouTube videos
+*   Quick summary with PDF, website, and YouTube videos
 *   Advanced image generation stack
 *   Analyse spreadsheets
 *   Connect to 10+ apps using MCP
@@ -166,7 +166,7 @@ Merlin AI is available across multiple platforms:
 *   Various document formats (PDF, DOC)
 *   Code repositories
 
-[![get merlin ai promo code](https://i.imgur.com/iKCJrUA.png)](https://www.getmerlin.in/pricing?ref=mzqyn2i&coupon=AFF5&plan=yearly)
+[![get merlin ai promo code](https://i.imgur.com/iKCJrUA.png)](https://www.getmerlin.in/pricing?ref=mzqyn2i)
 
 ### Conclusion
 
